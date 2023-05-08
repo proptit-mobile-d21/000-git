@@ -1,2 +1,0 @@
-#
-Hoàng Mạnh Dũng
